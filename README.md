@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LimonDimon
-- 👀 I’m interested in Book
+- 👀 I’m interested in Books
 - 🌱 I’m currently learning
 - 📫 How to reach me 89806638198
 - ⚡ Fun fact: I'm from Russia
